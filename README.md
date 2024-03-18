@@ -1,4 +1,5 @@
-# 💫 About Me:
+# Hii Iam Sharana Banakar
+
 Tech visionary fusing computer science and engineering with unrivaled expertise.
 
 
